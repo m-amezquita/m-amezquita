@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @m-amezquita
+- 🌱 I’m currently learning Software Architecture and Tools
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I don't have boobies
